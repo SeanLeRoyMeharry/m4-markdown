@@ -8,5 +8,4 @@ See `complete` branch for an example.
 
 > How horrible, fantastic, incredible, it is that we should be digging trenches and trying on gas-masks here because of a quarrel in a faraway country between people of whom we know nothing.
 
-https://www.brainyquote.com/quotes/quotes/n/nevillecha195587.html
 [BrainyQuote](https://www.brainyquote.com/quotes/quotes/n/nevillecha195587.html)
